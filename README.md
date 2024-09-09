@@ -20,7 +20,7 @@ He embraces his locura because that’s where creativity and innovation merge, w
 
 <p align="center">
   <b>
-    ᡕᠵデ气亠 &nbsp; 𝕸𝖎𝖘 𝖏𝖚𝖌𝖚𝖊𝖙𝖎𝖙𝖔𝖘 &nbsp; ᡕᠵデ气亠
+    ᡕᠵデ气亠 &nbsp; 𝖒𝖎𝖘 𝖏𝖚𝖌𝖚𝖊𝖙𝖊𝖘 &nbsp; ᡕᠵデ气亠
   </b>
 </p>
 <p align="center">
