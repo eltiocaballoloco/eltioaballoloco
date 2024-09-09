@@ -12,7 +12,7 @@
 
 ### About 𝕰𝖑 𝕿𝖎𝖔
 
-Como estan mis chavalones?? Así nos saludaba siempre el general 🍕🍅🇲🇽
+Cómo están mis chavalones?? Así nos saludaba siempre el general 🍕🍅🇲🇽
 
 He embraces his locura because that’s where creativity and innovation merge, where ideas that seem strange at first turn into software breakthroughs. A masked Hacker, DevOps and Mazatlán lover. El Tío Caballo Loco is a character who commands both strange fascination and admiration, galloping through the depths of cyberspace on surreal software engineering challenges 🐎🐎
 
