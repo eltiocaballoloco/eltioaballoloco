@@ -4,8 +4,8 @@
 <br>
 <div align="center">
   <a href="https://www.youtube.com/@eltiocaballoloco"><img src="https://img.shields.io/badge/YouTube-FF0000?style=for-the-badge&logo=youtube" alt="YouTube"></a>
-  <a href="https://www.instagram.com/eltiocabaloloco"><img src="https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram" alt="Instagram"></a>
   <a href="https://www.tiktok.com/@eltiocaballoloco"><img src="https://img.shields.io/badge/TikTok-000000?style=for-the-badge&logo=tiktok" alt="TikTok"></a>
+  <a href="https://www.instagram.com/eltiocabaloloco"><img src="https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram" alt="Instagram"></a>
 </div>
 
 ---
